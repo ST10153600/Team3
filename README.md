@@ -1,1 +1,1 @@
-# Team3 is 
+# Team3 is the
